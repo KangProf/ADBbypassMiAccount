@@ -7,6 +7,10 @@ Jadi bagi kalian yang mengalami pada saat melakukan bypass akun mi via fix miclo
 
 Untuk Versi Tools Mi Account ADB Bypass ada dua macam, yang tidak ada file bug yang versi Mi Account ADB Bypass ada file bug, tapi ini tidak akan berpengaruh pada komputer/laptop kalian, jadi jika agan mau mencoba file Mi Account ADB Bypass buatan adanichell , silahkan download file Mi Account ADB Bypass pada halaman di bawah ini secara gratis.
 
+jika ada passwordnya
+
+password: adanichell
+
 ![itik2](https://user-images.githubusercontent.com/77473259/128008140-7f70cba1-3ed5-48d6-89cf-a5b1a270cf16.png)
 
 Thanks To: AdaniCell
